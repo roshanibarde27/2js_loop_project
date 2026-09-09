@@ -57,5 +57,5 @@
 
 🎥 Demo Video
 
-https://drive.google.com/file/d/1WUY-NdGTaQYRJvnDiABd3kM7yfbHj9tZ/view?usp=drive_link
+https://drive.google.com/file/d/1WUY-NdGTaQYRJvnDiABd3kM7yfbHj9tZ/view?usp=sharing
 
